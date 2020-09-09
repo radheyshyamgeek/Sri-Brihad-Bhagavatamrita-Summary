@@ -1,7 +1,9 @@
 # Sri-Brihad-Bhagavatamrita-Summary
-## Summary of Sri Brihad Bhagavatamrita by Srila Sanatana Goswami, Translation by Gopiparanadhana Dasa  
+### Summary of Sri Brihad Bhagavatamrita by Srila Sanatana Goswami, Translation by Gopiparanadhana Dasa  
 
-### PART 1 
+
+
+#### PART 1 
 
 Janamejaya son of Parikshit maharaj asked mahabharata and more to jaimini risi
 
@@ -35,7 +37,8 @@ Uddhava says the highest object of Krishna mercy are gopis they have pure love f
 Here brahma and vishakarma create fake vrindavan to deceive krishna and later balarama tell go hekp pandavas then he comes to his senses.
 
 
-### PART 2
+
+#### PART 2
 
 Pragjyotisa city bramana 
 One bramana get mantra from kamakhya devi
@@ -88,7 +91,7 @@ He was so happy to see lord Narayan there. Then he was his consorts like laxmi a
 
 
 
-### Part 3
+#### Part 3
 
 Then gopa kumara came to dwaraka. He saw lord in his all opulence in his sudharma assembly hall and he was so beautiful with all hos associates like sri vasudeva king urrasena baladev akrura. And also his misinster vikadru and militray head krtavarma and lord narada was playing vina and entertaining lord. 
 
